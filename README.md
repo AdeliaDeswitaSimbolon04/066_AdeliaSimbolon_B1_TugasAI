@@ -1,0 +1,1 @@
+# 066_AdeliaSimbolon_B1_TugasAI
